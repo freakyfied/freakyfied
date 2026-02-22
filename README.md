@@ -1,16 +1,24 @@
-## Hi there 👋
+ <div align="center">
+   
+$\text{\color{#4445ba}⠀⠀˶ˆᗜˆ˵ }$
 
-<!--
-**freakyfied/freakyfied** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$\text{\color{#4445ba}⠀⠀dev or citrus, no pronouns but he/him is also ok! }$
+$\text{\color{#4445ba}⠀⠀im offtab all the time please w2i + interact w/ care }$
 
-Here are some ideas to get you started:
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mmyxqf3x2l2rbbt2ej4mumokde&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=0015b3&bar_color_cover=false">
+  </a>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\text{\color{#4445ba}⠀⠀c+h is fine anytime, please c+h i luv cuddling }$
+$\text{\color{#4445ba}⠀⠀i also love matching skins like duos plsss match with me   }$
+
+[fuck, i luv my friends](https://open.spotify.com/track/01qxyYnJ61NPoWYMT92wNa?si=624a02e68d57492c)
+
+<img src="https://files.catbox.moe/4jj6cz.png" width="350">
+
+$\text{\color{#4445ba}⠀⠀i dont really interact first, unless im crowning }$
+$\text{\color{#4445ba}⠀⠀so if i ever c+h with you i probably wont talk or start conversation }$
+
+[main rentry](https://rentry.co/devandkier)  [strawpage](https://-azaleaduo.straw.page/)  [atabook](https://bittersewing.atabook.org/)
