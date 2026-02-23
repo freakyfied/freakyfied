@@ -21,7 +21,7 @@ $\text{\color{#4445ba}⠀⠀i also love matching skins like duos plsss match wit
 $\text{\color{#4445ba}⠀⠀i dont really interact first, unless im crowning }$
 $\text{\color{#4445ba}⠀⠀so if i ever c+h with you i probably wont talk or start conversation }$
 
-[main rentry](https://rentry.co/devandkier)  [strawpage](https://-azaleaduo.straw.page/)  [atabook](https://bittersewing.atabook.org/) [shared rentry](https://rentry.co/_rgbtrio)
+[main rentry](https://rentry.co/devandkier)  [strawpage](https://-azaleaduo.straw.page/)  [atabook](https://bittersewing.atabook.org/) [shared rentry](https://rentry.co/_rgbtrio) [days since last knd upload](https://www.tickcounter.com/countup/499351/days-since-last-knd-upload) 
 
 <img alt="Endpoint Badge" src="https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Ffreakyfied%2Ffreakyfied.json&style=flat&label=views&color=blue">
 
