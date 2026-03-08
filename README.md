@@ -25,5 +25,5 @@ $\text{\color{#4445ba}⠀⠀so if i ever c+h with you i probably wont talk or st
 
 <img alt="Endpoint Badge" src="https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Ffreakyfied%2Ffreakyfied.json&style=flat&label=views&color=blue">
 
-![](https://files.catbox.moe/0qpoat.png) ![](https://files.catbox.moe/gqqwkk.png)
+![](https://files.catbox.moe/zwfnho.png) ![](https://files.catbox.moe/0qpoat.png) ![](https://files.catbox.moe/gqqwkk.png)
 
