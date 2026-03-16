@@ -11,15 +11,15 @@ $\text{\color{#4445ba}⠀⠀im offtab all the time please w2i + interact w/ care
   </a>
 </p>
 
-$\text{\color{#4445ba}⠀⠀c+h is fine anytime, please c+h i luv cuddling }$
-$\text{\color{#4445ba}⠀⠀i also love matching skins like duos plsss match with me   }$
+$\text{\color{#4445ba}⠀⠀i am mostly sat with my friends: }$
+$\text{\color{#4445ba}⠀⠀star, andrew and sun   }$
 
 [fuck, i luv my friends](https://open.spotify.com/track/01qxyYnJ61NPoWYMT92wNa?si=624a02e68d57492c)
 
 <img src="https://files.catbox.moe/4jj6cz.png" width="350">
 
 $\text{\color{#4445ba}⠀⠀i dont really interact first, unless im crowning }$
-$\text{\color{#4445ba}⠀⠀so if i ever c+h with you i probably wont talk or start conversation }$
+$\text{\color{#4445ba}⠀⠀so if i ever c+h with you or something i probably wont talk or start conversation }$
 
 [main rentry](https://rentry.co/devandkier)  [strawpage](https://-azaleaduo.straw.page/)  [atabook](https://bittersewing.atabook.org/) [shared rentry](https://rentry.co/_rgbtrio) [days since last knd upload](https://www.tickcounter.com/countup/499351/days-since-last-knd-upload) 
 
