@@ -16,3 +16,6 @@ please give me songs to listen to!!!!!!!! -> [CLICK HERE](https://bittersewing.a
 <img alt="Endpoint Badge" src="https://img.shields.io/endpoint?url=https%3A%2F%2Fhits.dwyl.com%2Ffreakyfied%2Ffreakyfied.json&style=flat&label=views&color=blue">
 
 
+Once upon a time there was a red BITCH walking in the forest. He did not know where he was going because he is a horrible human being. He was born bad, but he became worse as he got older. Right now he is 400000000000000000000000 years old. He is an old loser who will never find love.
+He is both a psychopath and a sociopath. Proved using science.
+XOXO
