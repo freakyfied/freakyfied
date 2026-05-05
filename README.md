@@ -19,3 +19,6 @@ hello hellooo im citrus or dev. i mostly sit at OSC but you can also find me at 
 Once upon a time there was a red BITCH walking in the forest. He did not know where he was going because he is a horrible human being. He was born bad, but he became worse as he got older. Right now he is 400000000000000000000000 years old. He is an old loser who will never find love.
 He is both a psychopath and a sociopath. Proved using science.
 XOXO
+
+<img src="https://picsur.org/i/12965298-51f8-4da0-8c07-2ff37e472e2f.jpg" alt="image">
+
