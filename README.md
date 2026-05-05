@@ -1,6 +1,6 @@
  <div align="center">
 
-[rentry](https://rentry.co/devandkier) ,  [days since last knd upload](https://www.tickcounter.com/countup/499351/days-since-last-knd-upload) 
+[rentry](https://rentry.co/devandkier) , [second rentry](https://rentry.co/spitrus) , [days since last knd upload](https://www.tickcounter.com/countup/499351/days-since-last-knd-upload) 
 
 please give me songs to listen to!!!!!!!! -> [CLICK HERE](https://bittersewing.atabook.org/)
 
