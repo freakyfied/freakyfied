@@ -16,5 +16,4 @@ Once upon a time there was a red BITCH walking in the forest. He did not know wh
 He is both a psychopath and a sociopath. Proved using science.
 XOXO
 
-<img src="https://picsur.org/i/12965298-51f8-4da0-8c07-2ff37e472e2f.jpg" alt="image">
-
+![](https://files.catbox.moe/of18r1.png)
