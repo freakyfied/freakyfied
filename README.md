@@ -8,4 +8,4 @@
 
 ![](https://files.catbox.moe/dvh4kp.png)
 
-![](https://files.catbox.moe/fcehrg.jpg)
+also check out my [pronouns page](https://en.pronouns.page/@bittersewing)
