@@ -9,3 +9,4 @@
 ![](https://files.catbox.moe/dvh4kp.png)
 
 also check out my [pronouns page](https://en.pronouns.page/@bittersewing)
+AND MY [CHUD RENTRY](https://rentry.co/thelookouts) that i speedran please please play this [game](https://paranoidhawk.itch.io/lookouts) its so good 
