@@ -1,6 +1,6 @@
  <div align="center">
   
-
+c+h freely || w2i all the timeee cuz im offtab 90% of the time
 
 ![](https://files.catbox.moe/dvh4kp.png)
 
