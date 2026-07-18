@@ -1,5 +1,4 @@
 Hi guys Im going to Remake this Ok
 https://rentry.co/devandkier
 https://rentry.co/spitrus
-https://straw.page/bittersewing
-
+https://bittersewing.straw.page
