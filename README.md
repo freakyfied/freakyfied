@@ -1,3 +1,5 @@
+much of the stuff on my links is kinda outdated because i havent really been on pt or stuff like that lately
+Hi im Citrus and im 15. I dont use pronouns But i dont mind if you use them on me.Only he/they okay? No fem terms Please Please Please. I am enby. I love playing wiht my friends. Lets play together!
 ![](https://files.catbox.moe/ak6bdl.png)
 <img src="https://files.catbox.moe/eps5pt.gif" width="300"> <img src="https://files.catbox.moe/1yvgi2.jpg" width="67"> <img src="https://files.catbox.moe/5e3t7k.gif" width="500">
 
